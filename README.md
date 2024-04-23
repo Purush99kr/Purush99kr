@@ -6,4 +6,3 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: A Developer
 - 📫 How to reach me: purushottam9934@gmail.com
-- 
